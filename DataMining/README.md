@@ -1,0 +1,2 @@
+XYZ Sports Company is a well-established fitness facility that has been serving the community for several years. To enhance its marketing strategies, improve customer engagement, and tailor its services, the company aims to develop a comprehensive customer segmentation strategy. This project focused on dividing the customer base into distinct segments based on various characteristics and behaviors.
+
